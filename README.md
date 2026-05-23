@@ -1,5 +1,3 @@
-# Tanvee's Marketing Portfolio
-
 Hi, I'm Tanvee.
 
 I work in GTM and ABM marketing with experience in:
